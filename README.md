@@ -1,2 +1,0 @@
-# LinkedIn-nathalia
-LinkedIn-nathalia
